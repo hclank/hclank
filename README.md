@@ -1,7 +1,7 @@
-freelancing and building
+freelancing and building 🚀
 <br />
-go and python enjoyer
+go and python enjoyer 🐁🐍
 <br />
-backend for life
+backend for life 💻
 <br />
-interested in web3 and a bit of ml
+interested in web3 and a bit of ml 🔐🤖
