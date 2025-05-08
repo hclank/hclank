@@ -1,3 +1,1 @@
-lead programmer at spacebar games.
-<br/>
-ml and hardware enthusiast.
+data and hardware enthusiast.
